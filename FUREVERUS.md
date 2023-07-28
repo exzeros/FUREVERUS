@@ -6,7 +6,7 @@ As weddings become more personalized and unique, many couples are opting to incl
 
 Before you start planning your pet's role in the wedding, it's essential to discuss the idea with your partner and close family members. Everyone's comfort with the arrangement is crucial to ensure a smooth celebration. Next, assess your pet's temperament and behavior. While some pets thrive in social situations, others might feel stressed or anxious in crowded places with loud noises.
 
-To ensure your pet is in good health, schedule a visit to the veterinarian. This health check will give you peace of mind, knowing your furry companion is ready for the big day. Additionally, consider hiring a professional wedding pet care expert like (Furever Us)[https://fureverus.com] if your pet needs some guidance on how to behave during the wedding. Proper training can make a significant difference in their ability to adapt to the bustling environment.
+To ensure your pet is in good health, schedule a visit to the veterinarian. This health check will give you peace of mind, knowing your furry companion is ready for the big day. Additionally, consider hiring a professional wedding pet care expert like expert like [**Furever Us**](https://fureverus.com/) if your if your pet needs some guidance on how to behave during the wedding. Proper training can make a significant difference in their ability to adapt to the bustling environment.
 
 
 ## Pet-Friendly Venue Selection
